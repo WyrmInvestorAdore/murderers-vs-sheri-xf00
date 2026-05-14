@@ -1,4 +1,4 @@
-#  
+#  Experience murderers vs sheriffs 2 like never before with advanced Script for murderers vs sheriffs 2, the #1 Script. Includes custom skins and
 
 
 
